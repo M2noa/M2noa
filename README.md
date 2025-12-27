@@ -1,1 +1,1 @@
-my main github ([M1noa](https://github.com/M1noa)) got falsely suspended Augest 26th 2025, support hasnt responded to my ticket as of Dec 21st 2025.. am now on [GitLab](https://gitlab.com/M1noa)
+my main github ([M1noa](https://github.com/M1noa)) got falsely suspended Augest 26th 2025, support hasnt responded to my ticket as of Dec 27st 2025.. am now on [GitLab](https://gitlab.com/M1noa) until further notice
